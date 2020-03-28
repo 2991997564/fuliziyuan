@@ -7,7 +7,7 @@
 ##### 各种类型都有，只有你想不到的，没有你找不到的！
 ##### 每天更新，欢迎收藏！
 ##### 点击开启刺激之旅！
-##### ——前方高能——
+##### ———前方高能——
 [www.miai360.top](http://www.miai360.top)<br>
 [www.mise360.top](http://www.mise360.top)<br>
 [www.mizhi360.top](http://www.mizhi360.top)<br>
@@ -23,7 +23,7 @@
 ##### 福利资源应有尽有！你想要的，这里都有！
 ##### 找资源，从这里开始！
 ##### 每天更新，欢迎收藏！
-##### ——火热推荐——
+##### ———火热推荐———
 [www.ddzym.com](http://www.ddzym.com)<br>
 ##### —欢迎收藏转发—
 
@@ -32,7 +32,7 @@
 ##### 精品福利导航第一品牌，专注于收集精品高质量网站！
 ##### 最懂你的导航！
 ##### 一个导航整个世界！
-##### ——点击进入——
+##### ———点击进入———
 [www.misedh.top](http://www.misedh.top)<br>
 [www.miaidh.top](http://www.miaidh.top)<br>
 [www.mizhidh.top](http://www.mizhidh.top)<br>
