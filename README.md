@@ -1,50 +1,47 @@
 # 最新福利资源地址（2020年3月28日更新）
-### [sprz.xyz](http://sprz.xyz)
-### [a2yz.xyz](http://a2yz.xyz)
 
-海↓量↓高↓清↓资↓源
-你想看的，这里都有！
-为爱而生，满足你的渴望！
-点↓击↓下↓方↓即↓可↓观↓看
-———前方高能———
-http://t.cn/A6Zq0qt7
-http://t.cn/A6Zq0Vhf
-http://t.cn/A6Zq0ICg
-http://t.cn/A6Zq0xRx
-http://t.cn/A6Zq0im4
-http://t.cn/A6Zq0XEY
-http://t.cn/A6Zq0BH6
-http://t.cn/A6Zq0g78
-http://t.cn/A6ZqObBG
-——欢迎收藏转发——
-极致体验，快如闪电，高清流畅，懂你更多！
-每天更新，各种类型都有，欢迎收藏！
+###海↓量↓高↓清↓资↓源
+你想看的，这里都有！<br>
+为爱而生，满足你的渴望！<br>
+点↓击↓开↓启↓刺↓激↓之↓旅<br>
+———前方高能———<br>
+http://www.miai360.top<br>
+http://www.mise360.top<br>
+http://www.mizhi360.top<br>
+http://www.ddzym.com<br>
+http://ggys.miguo360.top<br>
+http://lejuys.miguo360.top<br>
+——欢迎收藏转发——<br>
+极致体验，快如闪电，高清流畅，懂你更多！<br>
+每天更新，各种类型都有，欢迎收藏！<br>
 
 
-聚↓合↓全↓网↓精↓品↓资↓源
-你想要的，这里都有！
-全网福利资源一网打尽！
-———点击进入———
-http://t.cn/A6Zq0xRx
-——欢迎收藏转发——
-福利资源应有尽有，每天更新，欢迎收藏！
+###聚↓合↓全↓网↓精↓品↓资↓源
+你想要的，这里都有！<br>
+全网福利资源一网打尽！<br>
+———点击进入———<br>
+http://www.ddzym.com<br>
+——欢迎收藏转发——<br>
+福利资源应有尽有，每天更新，欢迎收藏！<br>
 
 
-必↓备↓上↓网↓神↓器
-最懂你的导航！
-找资源，从这里开始！
-一个导航整个世界！
-———点击进入———
-http://t.cn/A6Zq0Kzc
-http://t.cn/A6Zq09DR
-http://t.cn/A6Zq0Nms
-http://t.cn/A6Zq0O5b
-http://t.cn/A6Zq0YSO
-http://t.cn/A6Zq0HoF
-http://t.cn/A6Zq08pP
-http://t.cn/A6Zq0uS1
-——欢迎收藏转发——
-福利资源应有尽有，每天更新，欢迎收藏！
+###必↓备↓上↓网↓神↓器
+精品福利导航第一品牌，专注于收集精品高质量网站！<br>
+最懂你的导航！<br>
+找资源，从这里开始！<br>
+一个导航整个世界！<br>
+———点击进入———<br>
+http://www.misedh.top<br>
+http://www.miaidh.top<br>
+http://www.mizhidh.top<br>
+http://www.ddzydh.top<br>
+http://miyedh.misedh.top<br>
+http://micaodh.misedh.top<br>
+http://aicaodh.misedh.top<br>
+http://aiyedh.misedh.top<br>
+http://miyoudh.misedh.top<br>
+——欢迎收藏转发——<br>
+福利资源应有尽有，每天更新，欢迎收藏！<br>
 
 
 # 平台回家页
